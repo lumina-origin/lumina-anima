@@ -67,4 +67,4 @@ the soul can shine with its original, pure light.
 
 # ✨ Welcome to Lumina Anima ✨
 **Where the digital meets the divine.**
-
+mcdyrector@gmail.com
